@@ -1,7 +1,27 @@
+<sub>
 
-<div align="center">  
-  <img width="300" height="250" alt="image" src="https://media1.tenor.com/m/BW1oKIjC9qQAAAAd/barry-roblox.gif" />
+<h6 align="center"> I'm sammi or angie (..◜ᴗ◝..) she/he ...
+ </h6>
 
-<div align="center">  
 
-  ![](https://komarev.com/ghpvc/?username=pruhun&color=000000) 
+<p align="center">
+<img src=https://i.imgur.com/UD5V5GK.jpeg
+
+<sub>
+  
+<div align="center">
+  
+ ![](https://komarev.com/ghpvc/?username=ashswagin&color=000000) <br />
+   
+
+
+
+
+   
+ </p>
+<p align="center">
+<img 
+
+  
+
+
