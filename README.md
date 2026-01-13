@@ -1,11 +1,11 @@
 <sub>
 
-<h6 align="center"> I'm sammi or angie (..◜ᴗ◝..) she/he ...
+<h6 align="center"> c+h yes!! (⸝⸝ᵕᴗᵕ⸝⸝) w2i at all times. I disconnect alot 
  </h6>
 
 
 <p align="center">
-<img src=https://i.imgur.com/Ri79le1.jpeg
+<img src=https://i.imgur.com/06LxX0A.png
 
 
 <sub>
