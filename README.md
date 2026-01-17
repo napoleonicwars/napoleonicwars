@@ -5,7 +5,7 @@
 
 
 <p align="center">
-<img src=https://i.imgur.com/06LxX0A.png
+<img src=https://media.tenor.com/UcfRIP8Psq8AAAA1/ponytown-mlp.webp
 
 
 <sub>
