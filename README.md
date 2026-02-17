@@ -5,14 +5,14 @@
 
 
 <p align="center">
-<img src=https://i.imgur.com/ORc1wxt.jpeg
+<img src=(https://media.tenor.com/iJTu0aBij7AAAAA1/adopt-me-play-adopt-me.webp)
 
 
 <sub>
 
 <div align="center">
   
- ![](https://komarev.com/ghpvc/?username=ashswagin&color=A595D6) <br />
+ ![](https://komarev.com/ghpvc/?username=ashswagin&color=000000) <br />
    
 
 
